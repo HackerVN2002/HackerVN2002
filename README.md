@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Long
 - 👀 I’m interested in C/C++,Java
 - 🌱 I’m currently learning information technology at Ha Noi University of Mining and Geology
-- 📫 How to reach me :my facebook:https://www.facebook.com/L88888L
+- 📫 How to reach me ❤️My facebook:https://www.facebook.com/L88888L❤️
 
 <!---
 HackerVN2002/HackerVN2002 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
